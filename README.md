@@ -1,2 +1,2 @@
 # news
-we deliver updated news around Indonesia everyday
+Kami Mengirimkan Berita di Seluruh Indonesia Setiap Hari
